@@ -8,14 +8,14 @@ XCREAM, 名刺管理のメイシー, 月額パンダ, 学校の達人 の4つの
 
 最近は、趣味として、文筆や社会評論をよく行っています。QuoraというQ&Aサイトでは数年連続でトップライターに選ばれました。昔からブログを書き続けていますので、それらのサイトへのリンクを置いておきます。
 
-- [https://note.com/piyoist/](note)
-- [https://jp.quora.com/profile/Shunichi-Arai](Quora)
-- [https://shunichi-arai.blogspot.com/](ブログ) (最近は更新してません)
-- [https://piyotravel.blogspot.com/](旅行ブログ) (最近は更新してません)
+- [note](https://note.com/piyoist/)
+- [Quora](https://jp.quora.com/profile/Shunichi-Arai)
+- [ブログ](https://shunichi-arai.blogspot.com/) (最近は更新してません)
+- [旅行ブログ](https://piyotravel.blogspot.com/) (最近は更新してません)
 
 # 製品
 
-- [https://www.xcream.net/](XCREAM) (アダルト多め,NSFW) 
-- [https://maysee.jp/](名刺管理のメイシー)
-- [https://getsugaku-panda.jp/](月額パンダ)
-- [https://tatsujin.school/](学校の達人)
+- [XCREAM](https://www.xcream.net/) (アダルト多め,NSFW) 
+- [名刺管理のメイシー](https://maysee.jp/)
+- [月額パンダ](https://getsugaku-panda.jp/)
+- [学校の達人](https://tatsujin.school/)
