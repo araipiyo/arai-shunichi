@@ -1,4 +1,4 @@
-# Title: Drinking Alone in Japan: A Cultural Art, Not a Red Flag
+# Drinking Alone in Japan: A Cultural Art, Not a Red Flag
 
 ## 1. Introduction – Silence, Not Sadness
 
