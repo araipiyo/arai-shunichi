@@ -2,8 +2,8 @@
 
 Not Lonely: The Perspective of a Japanese Guy
 
-- https://arai-shunichi.com/drinking_alone_in_japan
-- https://arai-shunichi.com/fuzoku
+- [Drinking Alone in Japan: A Cultural Art, Not a Red Flag](https://arai-shunichi.com/drinking_alone_in_japan)
+- [Fuzoku — Japan’s Institutionalized Sex Industry](https://arai-shunichi.com/fuzoku)
 
 # ソフトウェア起業家 新井俊一
 
