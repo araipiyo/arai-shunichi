@@ -1,3 +1,9 @@
+# Software Entrepreneur - ARAI Shunichi
+
+Not Lonely: The Perspective of a Japanese Guy
+
+- https://arai-shunichi.com/drinking_alone_in_japan
+
 # ソフトウェア起業家 新井俊一
 
 こんにちは！ ソフトウェア起業家 新井俊一です。皆さんに自分のことを良く知って頂くために、自己紹介を作りました！
