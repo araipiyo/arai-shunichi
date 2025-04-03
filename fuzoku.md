@@ -48,7 +48,11 @@ People know that without such a space—such a release valve—something worse m
 
 In cities that offer no mechanism to process desire, people break. They overdose. They snap. Japan chooses something else. If the alternative is fentanyl, then perhaps paid intimacy is the more humane compromise.
 
-And importantly, the people who work in fuzoku are not all the same. There is no single archetype. Some are there because welfare systems failed them: women with disabilities who want autonomy, who don’t want to be controlled by the state, or who don’t even qualify for assistance. Others are there because it’s work—work that pays. They don’t enjoy it, but they don’t hate it either. After all, most jobs aren’t about passion—they're about survival.
+And importantly, the people who work in fuzoku are not all the same. There is no single archetype. 
+
+Some are there because welfare systems failed them: women with disabilities who want autonomy, who don’t want to be controlled by the state, or who don’t even qualify for assistance. 
+
+Others are there because it’s work—work that pays. They don’t enjoy it, but they don’t hate it either. After all, most jobs aren’t about passion—they're about survival.
 
 And some are there out of curiosity. Out of intellect. You’ll meet graduate students, doctors, consultants—women who wanted to understand the world, or themselves, a little differently. Fuzoku is not just a service industry. It's a mirror for society’s contradictions—and sometimes, a laboratory for the soul.
 
