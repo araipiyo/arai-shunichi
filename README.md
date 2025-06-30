@@ -28,7 +28,6 @@ XCREAM, 名刺管理のメイシー, 月額パンダ, 学校の達人 の4つの
 最近は、趣味として、文筆や社会評論をよく行っています。いまはnoteを中心に書いています。QuoraというQ&Aサイトでは数年連続でトップライターに選ばれました。昔からブログを書き続けていますので、それらのサイトへのリンクを置いておきます。
 
 - [note](https://note.com/piyoist/) おすすめ
-- [Twitter](https://x.com/shunichi_arai) 毒舌注意
 - [Quora](https://jp.quora.com/profile/Shunichi-Arai) 最近は更新頻度が落ち気味
 - [ブログ](https://shunichi-arai.blogspot.com/) 長らく更新してません
 - [旅行ブログ](https://piyotravel.blogspot.com/) 長らく更新してません
